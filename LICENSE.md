@@ -1,4 +1,4 @@
-# 
+# premium meme coin sniper bot | MEV-detection + flash-loan-arbitrage offers the most advanced meme coin sniper bot, with MEV-detection and flash-loan-arbitrage. Ideal for
 
 
 
